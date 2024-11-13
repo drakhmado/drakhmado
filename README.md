@@ -5,5 +5,4 @@
 - 📫 you're probably never reach to me because I'm busy. You know, I'm working.
 - 😄 Pronouns: Work Bitch ! 
 - ⚡ Fun fact: If you dont work; you die.
-
-<!--- drakhmado is a working repository --->
+- drakhmado is a working repository
